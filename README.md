@@ -1,1 +1,1 @@
-# Good luck to everybody who saw it!
+# Good luck to everyone who sees this!
